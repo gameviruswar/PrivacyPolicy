@@ -1,4 +1,5 @@
 Privacy Policy
+
 We take children’s privacy seriously.
 Our Apps:
 Do not collect your name or phone number
